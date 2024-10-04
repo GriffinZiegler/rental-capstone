@@ -4,6 +4,9 @@ https://www.etsu.edu/etsu-news/2022/08-august/enrollment-increase.php
 
 https://irsa.utk.edu/reporting/fact-book/
 
+https://multifamilyaffordablehousing.com/renters-gain-upper-hand-in-nashville/ - Ref 2023 and before
+"A majority of projects that are currently under development, 60 percent, are mid-rise or high-rise Class A communities located downtown. According to RealPage, there are 11,400 units under construction downtown."
+
 Overall Trends:
 
     What is the overall trend in rental prices across different regions from 2020 to 2024?
